@@ -119,6 +119,6 @@ change. For material changes we will notify users in-app or by email.
 
 For privacy questions or requests:
 
-**Email:** hnasir.business@gmail.com
+**Email:** rajanoumanmasood@gmail.com
 
 ---
